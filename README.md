@@ -1,16 +1,43 @@
-## Hi there 👋
+I am a Public Relations professional passionate about strategic communication, digital media, content creation and stakeholder engagement.
 
-<!--
-**Tebogo-maloka/Tebogo-maloka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My professional experience includes working in municipal communications, higher education and digital media environments. I have experience creating communication materials, supporting public relations campaigns, managing social media content, coordinating events and engaging with stakeholders.
 
-Here are some ideas to get you started:
+I am currently interested in opportunities in:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Public Relations
+Corporate Communications
+Digital Marketing
+Social Media Management
+Content Creation
+Media Relations
+Event Coordination
+Stakeholder Engagement
+Communications Administration
+🛠️ Skills
+Professional Skills
+Corporate Communications
+Public Relations
+Media Relations
+Press Release Writing
+Public Relations Campaign Support
+Stakeholder & Community Engagement
+Social Media Management
+Content Creation & Copywriting
+Event Coordination & Logistics
+Relationship Building & Networking
+Leadership & Teamwork
+Time Management & Organisation
+Problem Solving & Critical Thinking
+Adaptability & Flexibility
+Attention to Detail
+Technical Skills
+Canva
+Graphic Design
+Microsoft Word
+Microsoft Excel
+Microsoft PowerPoint
+Microsoft Outlook
+Social Media Platforms
+Digital Content Creation
+
+These competencies are reflected in my professional experience and CV.
